@@ -3,5 +3,5 @@
 
 [discord server]()
 
-NAMES: MALWARE , AMY , ROSY , DEE
+NAMES: MALWARE , MAL , AMY , ROSY , DEE
 
