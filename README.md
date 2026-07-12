@@ -1,5 +1,6 @@
 ## [ ROSY ] MALWARE AMY
-<img width="250" height="250" alt="SonicAndRosy-removebg-preview" src="https://github.com/user-attachments/assets/ec4c5ab3-8968-46bd-b008-ba3dfb3b4090" />
+<img width="393" height="508" alt="images__16_-removebg-preview" src="https://github.com/user-attachments/assets/c04f90ac-5276-4688-ae3c-48741f25eea3" />
+ HIII I'm CHARLOTTE. I also go by Charlie, Lotte and Lottie. Other acceptable names are Cam or Camera and any characters I kin, particularly Rosy(malware amy), Amy Rose and Ribbit.
 
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31ubmixocgd5qu7wk5carecoq4t4&unique={true|1|on|yes})
 
