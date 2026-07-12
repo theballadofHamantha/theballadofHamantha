@@ -1,7 +1,7 @@
 ## [ ROSY ] MALWARE AMY
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31ubmixocgd5qu7wk5carecoq4t4&unique={true|1|on|yes})
 
-[discord server]()
+[discord server](https://discord.gg/py37fxQpr8)
 
 PREF NAMES: MAL/MALWARE , ROSE/ROSY , AMY , DEE
 
