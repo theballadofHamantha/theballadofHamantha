@@ -1,20 +1,40 @@
-<img align="left" height="320" width="240" src="https://i.postimg.cc/q7xKKPCV/images-16-removebg-preview.png)](https://postimg.cc/gwrrFBDN)">HIII I'm CHARLOTTE. I also go by Charlie, Lotte and Lottie. Other acceptable names are Cam or Camera and any characters I kin, particularly Rosy(malware amy), Amy Rose and Ribbit. I naturally feel very unwelcome, it's why I'm so awkward around new people. My computer is also extremely crappy and cheap so I disconnect a lot lmaoooo.
+<img align="left" height="320" width="240" src="https://i.postimg.cc/q7xKKPCV/images-16-removebg-preview.png)](https://postimg.cc/gwrrFBDN)">
+HIII I'm CHARLOTTE. I also go by Charlie, Lotte and Lottie. Other acceptable names are Cam or Camera and any characters I kin, particularly Rosy(malware amy), Amy Rose and Ribbit. I naturally feel very unwelcome, it's why I'm so awkward around new people. My computer is also extremely crappy and cheap so I disconnect a lot lmaoooo.
 
-![]()
+<br>
 
-<p align="right">
-I really love Rewrite Sonic, he is just so cute AUUUUUHH. I don't really talk about my yumes but a few I'm pretty public abouy are Almond Cookie, Royal Margarine Cookie and Harvey(SDV) <img align="right" height="320" width="320" src="https://i.postimg.cc/ZqxNNGyk/Rosy-And-Sonic-removebg-preview.png)](https://postimg.cc/gwrrFBD4)">
-
+<p align="center">
+ 
+[![tumblr-df6e3a101365df9bee03dac808eb8b2e-311a7757-400.png](https://i.postimg.cc/X71jX4N3/tumblr-df6e3a101365df9bee03dac808eb8b2e-311a7757-400.png)](https://postimg.cc/TpmM48WH)
 </p>
 
-![]()
+<br>
+
+<p align="right">
+ 
+I really love Rewrite Sonic, he is just so cute AUUUUUHH. I don't really talk about my yumes but a few I'm pretty public abouy are Almond Cookie, Royal Margarine Cookie and Harvey(SDV)
+<img align="right" height="320" width="320" src="https://i.postimg.cc/ZqxNNGyk/Rosy-And-Sonic-removebg-preview.png)](https://postimg.cc/gwrrFBD4)">
+ 
+</p>
+
+<br>
+
+<p align="center">
+ 
+[![tumblr-df6e3a101365df9bee03dac808eb8b2e-311a7757-400.png](https://i.postimg.cc/X71jX4N3/tumblr-df6e3a101365df9bee03dac808eb8b2e-311a7757-400.png)](https://postimg.cc/TpmM48WH)
+
+<br>
+
+</p>
 
 <p align="left">
 
-<img align="left" height="320" width="320" src="https://i.postimg.cc/Ls3PPcgr/Sonic-And-Rosy-removebg-preview.png)](https://postimg.cc/GB99wSQQ)"> My keyboard is also very broken, if we aren't close, making jokes about my spelling mistakes will PMO. LEFTE/Lefty from FNAF PMO. I also really hate Jax.
+<img align="left" height="320" width="320" src="https://i.postimg.cc/Ls3PPcgr/Sonic-And-Rosy-removebg-preview.png)](https://postimg.cc/GB99wSQQ)">
+My keyboard is also very broken, if we aren't close, making jokes about my spelling mistakes will PMO. LEFTE/Lefty from FNAF PMO. I also really hate Jax.
+
 </p>
 
-
+<br>
 
 <div align=center>
  
