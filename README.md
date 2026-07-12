@@ -11,9 +11,8 @@ I really love Rewrite Sonic, he is just so cute AUUUUUHH. I don't really talk ab
 </div>
 
 <div align="left">
-My keyboard is also very broken, if we aren't close, making jokes about my spelling mistakes will PMO. LEFTE/Lefty from FNAF PMO. I also really hate Jax.
 
-[![Sonic-And-Rosy-hate](https://i.postimg.cc/Ls3PPcgr/Sonic-And-Rosy-removebg-preview.png)](https://postimg.cc/GB99wSQQ)
+[![Sonic-And-Rosy-hate](https://i.postimg.cc/Ls3PPcgr/Sonic-And-Rosy-removebg-preview.png)](https://postimg.cc/GB99wSQQ)My keyboard is also very broken, if we aren't close, making jokes about my spelling mistakes will PMO. LEFTE/Lefty from FNAF PMO. I also really hate Jax.
 </div>
 
 <div align=center>
